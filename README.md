@@ -78,4 +78,4 @@
 | **Domeng** | _"Walang pila-pila sa taong may pera. Gusto mo mabilis? Gawan natin ng paraan."_ |
 | **Omar** | _"Walang libre sa mundong 'to, lalo na kung nagmamadali ka. Kung gusto mo ng shortcut, bayaran mo ang toll."_ |
 
-• **Watch this latest release of this movie to the nearest cinema!🎞️**
+• **Watch the latest release of this movie to the nearest cinema!🎞️**
